@@ -27,7 +27,7 @@ An IT student with a strong foundation in Cybersecurity and a passion for learni
   **Ajmani International School, Lakhimpur Kheri**
   *2020 - 2022*
 
-## Resume: [https://drive.google.com/file/d/1F1rRi996g3tAqPWioP9qleS-FJIO35EB/view?usp=drivesdk]
+#### Resume: [https://drive.google.com/file/d/1F1rRi996g3tAqPWioP9qleS-FJIO35EB/view?usp=drivesdk]
 
 ---
 
