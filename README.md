@@ -4,7 +4,7 @@ Here’s your updated version with the changes:
 
 # Hi! I'm **Yash Mishra**
 
-An IT student with a strong foundation in Cybersecurity and a passion for learning.
+An IT student with a strong foundation in Web dev and DSA and a passion for learning.
 
 ---
 
